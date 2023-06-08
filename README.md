@@ -1,4 +1,4 @@
-My name is Matthew Rosan I have a background in SAAS sae=les and Nasdaq futures trading.
+My name is Matthew Rosan I have a background in SAAS sales and Nasdaq futures trading.
 
 My career goal is to become a quantitative trader.
 
